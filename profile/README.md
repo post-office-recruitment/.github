@@ -16,9 +16,8 @@
 
 ### **Post Office Recruitment - Postal Assistant and Sorting Assistant Recruitment List**
 
-|     |     |
-| --- | --- |
 | **State Name:** | **Tamil Nadu** |
+| --- | --- |
 | **Post Name:** | **Postal Assistant and Sorting Assistant** |
 | **No. of Vacancies:** | **202** |
 | **Qualification:** | **10th Pass** |
@@ -28,9 +27,8 @@
 
   \[adinserter block="2"\]  
 
-|     |     |
-| --- | --- |
 | **State Name:** | **Karnataka** |
+| --- | --- |
 | **Post Name:** | **Postal Assistant and Sorting Assistant** |
 | **No. of Vacancies:** | **138** |
 | **Qualification:** | **10th Pass** |
