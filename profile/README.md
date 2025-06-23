@@ -51,41 +51,32 @@
 | **Result Published on:** | **21-June-2025** |
 | **[Download Result PDF](https://postofficerecruitmentonline.com/post-office-gds-result/)** |     |
 
-  \[adinserter block="3"\]  
-
 - - -
 
 ### **Field Officers and Direct Agents Recruitment List**
 
-|     |     |
-| --- | --- |
 | **State Name:** | **Meghalaya** |
+| --- | --- |
 | **Post Name:** | **Field Officers and Direct Agents** |
 | **No. of Vacancies:** | **60** |
 | **Qualification:** | **10th Pass** |
 | **Last Date:** | **10-June-2025** |
 | **[Apply Now](https://postofficerecruitmentonline.com/meghalaya-post-office-recruitment-2025/)** |     |
 
- 
-
 - - -
 
-### **State Wise GDS Post Office Recruitment List**
+## **State Wise GDS Post Office Recruitment List**
 
-|     |     |
-| --- | --- |
 | **State Name:** | **Andra Pradesh** |
+| --- | --- |
 | **Post Name:** | **GDS** |
 | **No. of Vacancies:** | **1215** |
 | **Qualification:** | **10th Pass** |
 | **Last Date:** | **03-March-2025** |
 | **[Apply Now](https://postofficerecruitmentonline.com/andhra-pradesh-post-office-recruitment-2025/)** |     |
 
- 
-
-|     |     |
-| --- | --- |
 | **State Name:** | **Assam** |
+| --- | --- |
 | **Post Name:** | **GDS** |
 | **No. of Vacancies:** | **655** |
 | **Qualification:** | **10th Pass** |
@@ -94,20 +85,18 @@
 
  
 
-|     |     |
-| --- | --- |
 | **State Name:** | **Bihar** |
+| --- | --- |
 | **Post Name:** | **GDS** |
 | **No. of Vacancies:** | **783** |
 | **Qualification:** | **10th Pass** |
 | **Last Date:** | **03-March-2025** |
 | **[Apply Now](https://postofficerecruitmentonline.com/bihar-post-office-recruitment-2025/)** |     |
 
- 
 
-|     |     |
-| --- | --- |
+ 
 | **State Name:** | **Chhattisgarh** |
+| --- | --- |
 | **Post Name:** | **GDS** |
 | **No. of Vacancies:** | **638** |
 | **Qualification:** | **10th Pass** |
