@@ -66,13 +66,12 @@
 
 [![Indian Post Office Recruitment 2025](https://postofficerecruitmentonline.com/wp-content/uploads/2025/02/Indian-Post-Office-Recruitment-2025-postofficerecruitmentonline.com-.webp)](https://postofficerecruitmentonline.com/)
 
-Application Started on 09th June 2025, You Can Apply through Official Link.
+Application Started on 24th June 2025, You Can Apply through Official Link.
 
 **Post Office Recruitment 2025:** Apply for **340 Postal Assistant and Sorting Assistant Vacancies. Post Office (Indian Post Office)** invited offline applications from eligible and interested candidates to fill up **Postal Assistant and Sorting Assistant Posts** through **Post Office (Indian Post Office) Official Notification in June 2025**. Job seekers who are looking for a career in the Central Government can make use of this opportunity. The official website of the **Post Office (Indian Post Office)** is www.indiapost.gov.in. Apply offline for these **Post Office (Indian Post Office) Postal Assistant and Sorting Assistant Jobs Before 02-July-2025**.   Other details, such as Vacancy Details, Education Qualification Details, Required Age Limit, Application Fee Details, Required Documents, Selection Procedure, How to Apply and Official Notification are given below.
 
-|     |     |
-| --- | --- |
 | **Organization Name:** | Indian Post Office (India Post Office) |
+| --- | --- |
 | **Post Name:** | Postal Assistant and Sorting Assistant Post |
 | **Total Vacancies:** | 340 Posts |
 | **Employment Category:** | **[Central Govt Jobs](https://postofficerecruitmentonline.com/)** |
@@ -85,29 +84,23 @@ Application Started on 09th June 2025, You Can Apply through Official Link.
 | **India Post Office Official Website:** | [**www.indiapost.gov.in**](https://www.indiapost.gov.in/vas/Pages/IndiaPostHome.aspx) |
 | **India Post GDS Official Website:** | [**www.indiapostgdsonline.gov.in**](https://indiapostgdsonline.gov.in/) |
 
-\[sc name="social-media-02"\]\[/sc\] \[adinserter block="2"\]  
-
 ## **Indian Post Office Vacancy 2025 Details:**
 
 *   **Vacancy Name: Postal Assistant and Sorting Assistant Posts - 340 Posts**
 
-|     |     |
-| --- | --- |
 | **State Name** | **No. of Vacancies** |
+| --- | --- |
 | [**Karnataka**](https://postofficerecruitmentonline.com/karnataka-post-office-recruitment-2025/) | 138 |
 | **[Tamil Nadu](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** | 202 |
 | **Total** | **340 Vacancies** |
-
-  \[ez-toc\]
 
 ## **Indian Post Office Recruitment 2025 Education Qualification:**
 
 *   As per **Indian Post Office (India Post Office), Official Announcement** candidates should have completed the **[10th Pass](https://postofficerecruitmentonline.com/qualification/10th/)** from any recognized board or University.
 *   See Official Notification for more information.
 
-|     |     |
-| --- | --- |
 | **Post Name** | **Qualification** |
+| --- | --- |
 | Postal Assistant (Circle Office & Regional Offices) | 10th Pass |
 | Postal Assistant (Post Office) |
 | Sorting Assistant (Railway Mail Service including Mail Motor Service) |
