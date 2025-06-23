@@ -185,14 +185,11 @@ All the Eligible candidates can apply for **Indian Post Office (India Post Offic
 ## **Indian Post Office Recruitment 2025 Important Dates:**
 
 | **Start Date to Apply:** | 23-June-2025 |
-| **Post Office Recruitment 2025 Last Date:** | 02-July-2025 |
 | --- | --- |
-
+| **Post Office Recruitment 2025 Last Date:** | 02-July-2025 |
  
 
 ## **Post Office Recruitment 2025 Important Links:**
-
-\[adinserter block="6"\]
 
 |     |     |
 | --- | --- |
@@ -204,8 +201,6 @@ All the Eligible candidates can apply for **Indian Post Office (India Post Offic
 | **Application Form Link (Tamil Nadu):** | [**CLICK HERE**](https://drive.google.com/file/d/1wQ1K2BIo-Bvu5B7IsrSi5G5BNzcqWXEI/view?usp=drive_link) |
 | **Official Website:** | [**CLICK HERE**](https://www.indiapost.gov.in/vas/Pages/IndiaPostHome.aspx) |
 
-\[adinserter block="7"\]   https://www.youtube.com/watch?v=DK\_HcTfdAKU&rel=0&controls=0  
-
 ## **Post Office Postal Assistant and Sorting Assistant Recruitment 2025 - FAQs:**
 
-\[lightweight-accordion title="1) What is the Job Name?" schema="faq" accordion\_open=true title\_tag="h3" bordered=true autop=false\]Ans: The Job Name is Post Office Postal Assistant and Sorting Assistant.\[/lightweight-accordion\] \[lightweight-accordion title="2) How many vacancies are being recruited by Post Office Postal Assistant and Sorting Assistant 2025?" schema="faq" accordion\_open=true title\_tag="h3" bordered=true autop=false\]Ans: Total 340 Vacancies.\[/lightweight-accordion\] \[lightweight-accordion title="3) What is the Apply Mode for the Post Office Postal Assistant and Sorting Assistant Recruitment 2025?" schema="faq" accordion\_open=true title\_tag="h3" bordered=true autop=false\]Ans: The Apply Mode is Offline (application need to be send through registered post).\[/lightweight-accordion\] \[lightweight-accordion title="4) What is the Starting Date to Apply for Post Office Postal Assistant and Sorting Assistant Recruitment 2025?" schema="faq" accordion\_open=true title\_tag="h3" bordered=true autop=false\]Ans: Starting Date to Apply Offline is 22-June-2025.\[/lightweight-accordion\] \[lightweight-accordion title="5) Post Office Recruitment 2025 Last Date?" schema="faq" accordion\_open=true title\_tag="h3" bordered=true autop=false\]Ans: Last Date to Apply Offline is 02-July-2025.\[/lightweight-accordion\] \[lightweight-accordion title="6) What is the Education Qualification to Apply for Post Office Postal Assistant and Sorting Assistant Recruitment 2025?" schema="faq" accordion\_open=true title\_tag="h3" bordered=true autop=false\]Ans: Education Qualification is 10th.\[/lightweight-accordion\] \[lightweight-accordion title="7) What is the Minimum Age to Apply for Post Office Postal Assistant and Sorting Assistant Recruitment 2025?" schema="faq" accordion\_open=true title\_tag="h3" bordered=true autop=false\]Ans: Minimum Age is 18 Years.\[/lightweight-accordion\] \[lightweight-accordion title="8) What is the Maximum Age Limit to Apply for Post Office Postal Assistant and Sorting Assistant Recruitment 2025?" schema="faq" accordion\_open=true title\_tag="h3" bordered=true autop=false\]Ans: Maximum Age is 35 Years.\[/lightweight-accordion\] \[lightweight-accordion title="9) What is the Salary for Post Office Postal Assistant and Sorting Assistant Recruitment 2025?" schema="faq" accordion\_open=true title\_tag="h3" bordered=true autop=false\]Ans: Salary is Rs. 10,000 to 29,000/- Per Month.\[/lightweight-accordion\]
+
