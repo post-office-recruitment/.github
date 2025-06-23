@@ -1,7 +1,7 @@
 [**Post Office Recruitment 2025 - Apply Offline for 340 Postal Assistant and Sorting Assistant Posts @ indiapost.gov.in**](https://postofficerecruitmentonline.com/)
 ====================================================================================================================================================================
 
-[![indiapostgdsonline.gov.in Website](https://postofficerecruitmentonline.com/wp-content/uploads/2025/02/indiapostgdsonline.gov_.in-website.webp)](https://postofficerecruitmentonline.com/) **[indiapostgdsonline.gov.in](https://postofficerecruitmentonline.com/) Website**\
+[![indiapostgdsonline.gov.in Website](https://postofficerecruitmentonline.com/wp-content/uploads/2025/02/indiapostgdsonline.gov_.in-website.webp)](https://postofficerecruitmentonline.com/) **[indiapostgdsonline.gov.in](https://postofficerecruitmentonline.com/) Website**
 
 ### **Active Jobs List in Post Office Recruitment 2025**
 
