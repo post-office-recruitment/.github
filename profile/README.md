@@ -48,7 +48,7 @@
 | **No. of Vacancies:** | **21,413** |
 | **Qualification:** | **10th Pass** |
 | **Result Published on:** | **21-June-2025** |
-| **[Download Result PDF](https://postofficerecruitmentonline.com/post-office-gds-result/)** |     |
+| **[Download Result PDF](https://postofficerecruitmentonline.com/post-office-gds-result/)** | -  |
 
 - - -
 
@@ -60,7 +60,7 @@
 | **No. of Vacancies:** | **60** |
 | **Qualification:** | **10th Pass** |
 | **Last Date:** | **10-June-2025** |
-| **[Apply Now](https://postofficerecruitmentonline.com/meghalaya-post-office-recruitment-2025/)** |     |
+| **[Apply Now](https://postofficerecruitmentonline.com/meghalaya-post-office-recruitment-2025/)** | - |
 
 - - -
 
