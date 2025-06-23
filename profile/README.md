@@ -64,7 +64,7 @@
 
 - - -
 
-![Indian Post Office Recruitment 2025](https://postofficerecruitmentonline.com/wp-content/uploads/2025/02/Indian-Post-Office-Recruitment-2025-postofficerecruitmentonline.com-.webp) \[sc name="social-media-01"\]\[/sc\]  
+[![Indian Post Office Recruitment 2025](https://postofficerecruitmentonline.com/wp-content/uploads/2025/02/Indian-Post-Office-Recruitment-2025-postofficerecruitmentonline.com-.webp)](https://postofficerecruitmentonline.com/)
 
 Application Started on 09th June 2025, You Can Apply through Official Link.
 
