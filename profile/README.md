@@ -109,7 +109,7 @@ Application Started on 24th June 2025, You Can Apply through Official Link.
 
 ## **Indian Post Office Recruitment 2025 Age Limit:**
 
-*   As per **Indian Post Office (India Post Office)****, Official Announcement**, The Minimum Age of candidates shall be **18 Years**, and The Maximum Age of candidates shall be **35 Years**.
+*   As per **Indian Post Office (India Post Office), Official Announcement**, The Minimum Age of candidates shall be **18 Years**, and The Maximum Age of candidates shall be **35 Years**.
 
 | **Post Name** | **Age Limit** |
 | --- | --- |
@@ -119,7 +119,7 @@ Application Started on 24th June 2025, You Can Apply through Official Link.
 
 ## **Post Office Recruitment 2025 Age Relaxation:**
 
-*   As per **Indian Post Office (India Post Office)****, Official Announcement,**
+*   As per **Indian Post Office (India Post Office), Official Announcement,**
 
 | **Content Name** | **Age Relaxation** |
 | --- | --- |
@@ -133,7 +133,7 @@ Application Started on 24th June 2025, You Can Apply through Official Link.
 
 ## **Indian Post Office Recruitment 2025 Application Fee:**
 
-*   As per **Indian Post Office (India Post Office)****, Official Announcement,**
+*   As per **Indian Post Office (India Post Office), Official Announcement,**
 *   **There is No Application Fee**
 
 | **Content Name** | **Application Fee** |
