@@ -4,6 +4,7 @@
 
 ### **Active Jobs List in Post Office Recruitment 2025**
 
+|     |     |     |
 | --- | --- | --- |
 | **Post Name** | **No. of Vacancies** | **Last Date** |
 | **Postal Assistant and Sorting Assistant** | **340 Vacancies** | **02-July-2025** |
