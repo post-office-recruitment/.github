@@ -1,10 +1,9 @@
 # [**Post Office Recruitment 2025 - Apply Offline for 340 Postal Assistant and Sorting Assistant Posts @ indiapost.gov.in**](https://postofficerecruitmentonline.com/)
 
-\[sc name="social-media-01"\]\[/sc\]   \[caption id="attachment\_306" align="aligncenter" width="1030"\][![indiapostgdsonline.gov.in Website](https://postofficerecruitmentonline.com/wp-content/uploads/2025/02/indiapostgdsonline.gov_.in-website.webp)](https://postofficerecruitmentonline.com/) **[indiapostgdsonline.gov.in](https://postofficerecruitmentonline.com/) Website**\[/caption\]   \[adinserter block="1"\]  
+[![indiapostgdsonline.gov.in Website](https://postofficerecruitmentonline.com/wp-content/uploads/2025/02/indiapostgdsonline.gov_.in-website.webp)](https://postofficerecruitmentonline.com/) **[indiapostgdsonline.gov.in](https://postofficerecruitmentonline.com/) Website**
 
 ### **Active Jobs List in Post Office Recruitment 2025**
 
-|     |     |     |
 | --- | --- | --- |
 | **Post Name** | **No. of Vacancies** | **Last Date** |
 | **Postal Assistant and Sorting Assistant** | **340 Vacancies** | **02-July-2025** |
@@ -12,8 +11,6 @@
 | **Driver** | **Nil** | **\-** |
 | **IPPB** | **Nil** | **\-** |
 | **Field Officers and Direct Agents** | **Nil** | **\-** |
-
-  [![WhatsApp Share](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxKuPOTq5iBzOiWKYq4cLwe4o6uCjiomw8ivbQadKYpaJC86UoTJlbWMdyFSm07-Ixu4wl1_am0EK4G8VKOwBvAzXAbSo1yhq7u4yFvZakJ_6MFvob3xem_FjYU9qw1JoQM1P_E1zD3AUlu76A_Uw_rNwHRSe6vybbQK6Na-qw_eUY2GPGOQBGS1dFums/s16000/Whatsapp-Share.gif)](https://api.whatsapp.com/send?text=*♻️ 𝐏𝐎𝐒𝐓 𝐎𝐅𝐅𝐈𝐂𝐄 𝐑𝐄𝐂𝐑𝐔𝐈𝐓𝐌𝐄𝐍𝐓 𝟐𝟎𝟐𝟓*%0A%0A*⭕️ 𝐋𝐢𝐧𝐤: 👇*%0Ahttps://post.sarkarik.com/post-office-jobs%0A%0A*⭕️ 𝐏𝐨𝐬𝐭 𝐍𝐚𝐦𝐞: Post Office Department Vacancies*%0A%0A*⭕️ 𝐓𝐨𝐭𝐚𝐥 𝐏𝐨𝐬𝐭𝐬: 340 Posts*%0A%0A*⭕️ 𝐄𝐝𝐮𝐜𝐚𝐭𝐢𝐨𝐧: 10th Pass*%0A%0A*⭕️ 𝐒𝐚𝐥𝐚𝐫𝐲: Rs. 10,000 to 29,380/- Per Month*%0A%0A*⭕️ 𝐀𝐩𝐩𝐥𝐲 𝐌𝐨𝐝𝐞: Offline (through registered post)*%0A%0A*⭕️ 𝐒𝐞𝐥𝐞𝐜𝐭𝐢𝐨𝐧 𝐏𝐫𝐨𝐜𝐞𝐬𝐬: Written Exam and Interview*%0A%0A*⭕️ 𝐋𝐚𝐬𝐭 𝐃𝐚𝐭𝐞 𝐭𝐨 𝐀𝐩𝐩𝐥𝐲: 02-July-2025*%0A%0A*✅ 𝐀𝐩𝐩𝐥𝐲 𝐋𝐢𝐧𝐤: 👇*%0Ahttps://post.sarkarik.com/post-office-jobs%0A%0A*=================*%0A%0A*♻️ 𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏 𝐆𝐑𝐎𝐔𝐏:~*%0A➠ https://www.sarkarik.com/whatsapp%0A%0A*✅ 𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌 𝐂𝐇𝐀𝐍𝐍𝐄𝐋:~*%0A➠ https://www.sarkarik.com/telegram%0A%0A*=================*%0A*🙏 𝐏𝐋𝐄𝐀𝐒𝐄 𝐒𝐇𝐀𝐑𝐄 🙏*%0A*=================*)
 
 - - -
 
