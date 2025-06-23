@@ -42,9 +42,8 @@
 
 ## **India Post GDS 4th Merit List 2025 \[Result Published\]**
 
-|     |     |
-| --- | --- |
 | **State Name:** | **All States** |
+| --- | --- |
 | **Post Name:** | **Gramin Dak Sevak (GDS)** |
 | **No. of Vacancies:** | **21,413** |
 | **Qualification:** | **10th Pass** |
