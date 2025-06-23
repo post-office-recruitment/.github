@@ -2,7 +2,7 @@
 
 [![indiapostgdsonline.gov.in Website](https://postofficerecruitmentonline.com/wp-content/uploads/2025/02/indiapostgdsonline.gov_.in-website.webp)](https://postofficerecruitmentonline.com/) **[indiapostgdsonline.gov.in](https://postofficerecruitmentonline.com/) Website**
 
-### **Active Jobs List in Post Office Recruitment 2025**
+## **Active Jobs List in Post Office Recruitment 2025**
 
 | **Post Name** | **No. of Vacancies** | **Last Date** |
 | --- | --- | --- |
@@ -14,7 +14,7 @@
 
 - - -
 
-### **Post Office Recruitment - Postal Assistant and Sorting Assistant Recruitment List**
+## **Post Office Recruitment - Postal Assistant and Sorting Assistant Recruitment List**
 
 | **State Name:** | **Tamil Nadu** |
 | --- | --- |
@@ -23,7 +23,7 @@
 | **Qualification:** | **10th Pass** |
 | **Start Date:** | **23-June-2025** |
 | **Last Date:** | **02-July-2025** |
-| **[Apply Now](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** | **[More Details](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)**    |
+| **[Apply Now](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** | **[More Details](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** |
 
   \[adinserter block="2"\]  
 
@@ -34,7 +34,7 @@
 | **Qualification:** | **10th Pass** |
 | **Start Date:** | **23-June-2025** |
 | **Last Date:** | **02-July-2025** |
-| **[Apply Now](https://postofficerecruitmentonline.com/karnataka-post-office-recruitment-2025/)** |     |
+| **[Apply Now](https://postofficerecruitmentonline.com/karnataka-post-office-recruitment-2025/)** | **[More Details](https://postofficerecruitmentonline.com/karnataka-post-office-recruitment-2025/)** |
 
  
 
