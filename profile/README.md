@@ -25,7 +25,7 @@
 | **Qualification:** | **10th Pass** |
 | **Start Date:** | **23-June-2025** |
 | **Last Date:** | **02-July-2025** |
-| **Apply Link** | **[Apply Now](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** |
+| **Apply Link:** | **[Apply Now](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** |
 
 ---
 
@@ -36,7 +36,7 @@
 | **Qualification:** | **10th Pass** |
 | **Start Date:** | **23-June-2025** |
 | **Last Date:** | **02-July-2025** |
-| **[Apply Now](https://postofficerecruitmentonline.com/karnataka-post-office-recruitment-2025/)** | **[More Details](https://postofficerecruitmentonline.com/karnataka-post-office-recruitment-2025/)** |
+| **Apply Link:** | **[Apply Now](https://postofficerecruitmentonline.com/karnataka-post-office-recruitment-2025/)** |
 
 - - -
 
@@ -48,7 +48,7 @@
 | **No. of Vacancies:** | **21,413** |
 | **Qualification:** | **10th Pass** |
 | **Result Published on:** | **21-June-2025** |
-| **[Download Result PDF](https://postofficerecruitmentonline.com/post-office-gds-result/)** | -  |
+| **PDF Link:** | **[Download Result PDF](https://postofficerecruitmentonline.com/post-office-gds-result/)**  |
 
 - - -
 
@@ -60,7 +60,7 @@
 | **No. of Vacancies:** | **60** |
 | **Qualification:** | **10th Pass** |
 | **Last Date:** | **10-June-2025** |
-| **[Apply Now](https://postofficerecruitmentonline.com/meghalaya-post-office-recruitment-2025/)** | - |
+| **Apply Link:** | **[Apply Now](https://postofficerecruitmentonline.com/meghalaya-post-office-recruitment-2025/)** |
 
 - - -
 
