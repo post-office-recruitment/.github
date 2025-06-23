@@ -27,8 +27,7 @@
 | **Last Date:** | **02-July-2025** |
 | **[Apply Now](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** | **[More Details](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** |
 
-
-- - -
+---
 
 | **State Name:** | **Karnataka** |
 | --- | --- |
