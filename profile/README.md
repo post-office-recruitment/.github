@@ -164,7 +164,7 @@ Application Started on 24th June 2025, You Can Apply through Official Link.
 
 ## **India Post Office Recruitment 2025 Selection Process:**
 
-*   As per **Indian Post Office (India Post Office)****, Official Announcement,**
+*   As per **Indian Post Office (India Post Office), Official Announcement,**
 *   **Written Exam (as per syllabus) and**
 *   **Document Verification / Interview**
 
