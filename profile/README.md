@@ -1,6 +1,10 @@
 # [**Post Office Recruitment 2025 - Apply for 340 Postal Assistant and Sorting Assistant Posts @ indiapost.gov.in**](https://postofficerecruitmentonline.com/)
 
+- - -
+
 [![indiapostgdsonline.gov.in Website](https://postofficerecruitmentonline.com/wp-content/uploads/2025/02/indiapostgdsonline.gov_.in-website.webp)](https://postofficerecruitmentonline.com/) **[indiapostgdsonline.gov.in](https://postofficerecruitmentonline.com/) Website**
+
+- - -
 
 ## **Active Jobs List in Post Office Recruitment 2025**
 
@@ -25,6 +29,8 @@
 | **Last Date:** | **02-July-2025** |
 | **[Apply Now](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** | **[More Details](https://postofficerecruitmentonline.com/tamil-nadu-post-office-recruitment-2025/)** |
 
+- - -
+
 | **State Name:** | **Karnataka** |
 | --- | --- |
 | **Post Name:** | **Postal Assistant and Sorting Assistant** |
@@ -34,11 +40,9 @@
 | **Last Date:** | **02-July-2025** |
 | **[Apply Now](https://postofficerecruitmentonline.com/karnataka-post-office-recruitment-2025/)** | **[More Details](https://postofficerecruitmentonline.com/karnataka-post-office-recruitment-2025/)** |
 
- 
-
 - - -
 
-### **India Post GDS 4th Merit List 2025 \[Result Published\]**
+## **India Post GDS 4th Merit List 2025 \[Result Published\]**
 
 |     |     |
 | --- | --- |
