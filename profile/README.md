@@ -102,8 +102,8 @@ Application Started on 24th June 2025, You Can Apply through Official Link.
 | **Post Name** | **Qualification** |
 | --- | --- |
 | Postal Assistant (Circle Office & Regional Offices) | 10th Pass |
-| Postal Assistant (Post Office) |
-| Sorting Assistant (Railway Mail Service including Mail Motor Service) |
+| Postal Assistant (Post Office) | 10th Pass |
+| Sorting Assistant (Railway Mail Service including Mail Motor Service) | 10th Pass |
 
  
 
@@ -111,55 +111,47 @@ Application Started on 24th June 2025, You Can Apply through Official Link.
 
 *   As per **Indian Post Office (India Post Office)****, Official Announcement**, The Minimum Age of candidates shall be **18 Years**, and The Maximum Age of candidates shall be **35 Years**.
 
-|     |     |
-| --- | --- |
 | **Post Name** | **Age Limit** |
+| --- | --- |
 | Postal Assistant (Circle Office & Regional Offices) | Minimum Age = 18 Years and Maximum Age = 35 Years |
-| Postal Assistant (Post Office) |
-| Sorting Assistant (Railway Mail Service including Mail Motor Service) |
-
-\[adinserter block="3"\]  
+| Postal Assistant (Post Office) | Minimum Age = 18 Years and Maximum Age = 35 Years |
+| Sorting Assistant (Railway Mail Service including Mail Motor Service) | Minimum Age = 18 Years and Maximum Age = 35 Years |
 
 ## **Post Office Recruitment 2025 Age Relaxation:**
 
 *   As per **Indian Post Office (India Post Office)****, Official Announcement,**
 
-|     |     |
-| --- | --- |
 | **Content Name** | **Age Relaxation** |
+| --- | --- |
 | SC / ST Candidates: | As Per Post Office (Indian Post Office) Norms |
-| OBC Candidates: |
-| EWS Candidates: |
-| PwD Candidates: |
-| PwD + OBC Candidates: |
-| PwD + SC / ST Candidates: |
+| OBC Candidates: | As Per Post Office (Indian Post Office) Norms |
+| EWS Candidates: | As Per Post Office (Indian Post Office) Norms |
+| PwD Candidates: | As Per Post Office (Indian Post Office) Norms |
+| PwD + OBC Candidates: | As Per Post Office (Indian Post Office) Norms |
+| PwD + SC / ST Candidates: | As Per Post Office (Indian Post Office) Norms |
 
-\[sc name="social-media-01"\]\[/sc\]  
 
 ## **Indian Post Office Recruitment 2025 Application Fee:**
 
 *   As per **Indian Post Office (India Post Office)****, Official Announcement,**
 *   **There is No Application Fee**
 
-|     |     |
-| --- | --- |
 | **Content Name** | **Application Fee** |
+| --- | --- |
 | General / OBC Candidates: | There is No Application Fee |
-| Ex-Servicemen Candidates: |
-| SC / ST / Category-1 / Women / PwD Candidates: |
+| Ex-Servicemen Candidates: | There is No Application Fee |
+| SC / ST / Category-1 / Women / PwD Candidates: | There is No Application Fee |
 
-\[adinserter block="4"\]  
 
 ## **Indian Post Office Jobs Salary Details:**
 
 *   As per **Indian** **Post Office (India Post Office), Official Announcement,**
 
-|     |     |
-| --- | --- |
 | **Post Name** | **Salary (Per Month)** |
+| --- | --- |
 | Postal Assistant (Circle Office & Regional Offices) | Rs. 10,000 to 29,380/- Per Month |
-| Postal Assistant (Post Office) |
-| Sorting Assistant (Railway Mail Service including Mail Motor Service) |
+| Postal Assistant (Post Office) | Rs. 10,000 to 29,380/- Per Month |
+| Sorting Assistant (Railway Mail Service including Mail Motor Service) | Rs. 10,000 to 29,380/- Per Month |
 
  
 
@@ -176,8 +168,6 @@ Application Started on 24th June 2025, You Can Apply through Official Link.
 *   **Written Exam (as per syllabus) and**
 *   **Document Verification / Interview**
 
-\[adinserter block="5"\]  
-
 ## **How to Apply for Indian Post Office Recruitment 2025:**
 
 All the Eligible candidates can apply for **Indian Post Office (India Post Office)** **Recruitment - February 2025** as mentioned below
@@ -192,14 +182,11 @@ All the Eligible candidates can apply for **Indian Post Office (India Post Offic
 8.  **Karnataka: The Postmaster General, Bengaluru HQ Region, Bengaluru – 560001**.
 9.  **Tamil Nadu: The Postmasters General, Chennai City Region, Chennai 600002/Central Region, Tiruchirappalli-620001/Southern Region, Madurai 625002/Western Region, Coimbatore 641 030.**
 
-\[sc name="social-media-02"\]\[/sc\]  
-
 ## **Indian Post Office Recruitment 2025 Important Dates:**
 
-|     |     |
-| --- | --- |
 | **Start Date to Apply:** | 23-June-2025 |
 | **Post Office Recruitment 2025 Last Date:** | 02-July-2025 |
+| --- | --- |
 
  
 
