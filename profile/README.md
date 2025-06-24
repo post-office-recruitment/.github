@@ -79,7 +79,7 @@ Application Started on 24th June 2025, You Can Apply through Official Link.
 | **Location:** | All Over Indian |
 | **Apply Mode:** | Online |
 | **Similar Jobs Link:** | **[India Post Office Govt Jobs](https://postofficerecruitmentonline.com/)** |
-| **Start Date to Apply:** | **23-June-2025** |
+| **Start Date to Apply:** | **24-June-2025** |
 | **Last Date to Apply:** | **02-July-2025** |
 | **India Post Office Official Website:** | [**www.indiapost.gov.in**](https://www.indiapost.gov.in/vas/Pages/IndiaPostHome.aspx) |
 | **India Post GDS Official Website:** | [**www.indiapostgdsonline.gov.in**](https://indiapostgdsonline.gov.in/) |
@@ -184,9 +184,9 @@ All the Eligible candidates can apply for **Indian Post Office (India Post Offic
 
 ## **Indian Post Office Recruitment 2025 Important Dates:**
 
-| **Start Date to Apply:** | 23-June-2025 |
+| **Start Date to Apply:** | **24-June-2025** |
 | --- | --- |
-| **Post Office Recruitment 2025 Last Date:** | 02-July-2025 |
+| **Post Office Recruitment 2025 Last Date:** | **02-July-2025** |
  
 
 ## **Post Office Recruitment 2025 Important Links:**
