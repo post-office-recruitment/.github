@@ -206,4 +206,4 @@ All the Eligible candidates can apply for **Indian Post Office (India Post Offic
 
 - - -
 
-![](https://komarev.com/ghpvc/?username=post-office-recruitment&label=Page+Views&base=1841&color=brightgreen)
+![](https://komarev.com/ghpvc/?username=post-office-recruitment&label=Page+Views&color=brightgreen)
