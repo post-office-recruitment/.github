@@ -200,6 +200,9 @@ All the Eligible candidates can apply for **Indian Post Office (India Post Offic
 | **Application Form Link (Tamil Nadu):** | [**CLICK HERE**](https://drive.google.com/file/d/1wQ1K2BIo-Bvu5B7IsrSi5G5BNzcqWXEI/view?usp=drive_link) |
 | **Official Website:** | [**CLICK HERE**](https://www.indiapost.gov.in/vas/Pages/IndiaPostHome.aspx) |
 
+ <a href='http://www.freevisitorcounters.com'>Free counter</a> <script type='text/javascript' src='https://www.freevisitorcounters.com/auth.php?id=6ff8e9520651d42ed1f60163d8567ccb6bd1a04b'></script>
+<script type="text/javascript" src="https://www.freevisitorcounters.com/en/home/counter/1357593/t/9"></script>
+
 - - -
 
 **Disclaimer:** Our website name is **Post Office Recruitment**. [**PostOfficeRecruitmentOnline.com**](https://postofficerecruitmentonline.com/) is not related to any government body and certainly not to the **Indian Post Office Department**. The official website of the Indian Post Office Department is **indiapost.gov.in**. We do not claim to be any government body. we are just a news portal that covers various updates and stories. Please read our [**Disclaimer**](https://postofficerecruitmentonline.com/disclaimer/) for more info.
